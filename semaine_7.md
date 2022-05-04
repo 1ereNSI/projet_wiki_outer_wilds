@@ -1,0 +1,3 @@
+# Semaine 7 :
+
+Rien ne marche comme il faut, j'en ai marre, va falloir songer à trouver des alternatives plus simples pour rendre des projets comme ça et pour faire un suivi. Je suis sûr qu'avec un peu de recherche et de travail vous pourriez faire ça sur Discord...
